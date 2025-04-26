@@ -5,7 +5,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=ashutosh3071&label=Profile%20views&color=0e75b6&style=flat" alt="ashutosh3071" /> </p>
 
-- 👨‍💻 All of my projects are available at [https://ashutosh3071.github.io/My-Portfolio/](https://ashutosh3071.github.io/My-Portfolio/)
+- 👨‍💻 All of my projects are available at [Portfolio](https://ashutosh3071.github.io/My-Portfolio/)
 
 - 📫 How to reach me **ashutoshsahoo753@gmail.com**
 
