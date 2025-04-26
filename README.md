@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **ashutoshsahoo753@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1bErK1wLXeULcem00slWVndNoVztQ2QS_/view?usp=drive_link](https://drive.google.com/file/d/1bErK1wLXeULcem00slWVndNoVztQ2QS_/view?usp=drive_link)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1pFrci2q-xxMn13xgNhojZjb_z6LvoZwY/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
